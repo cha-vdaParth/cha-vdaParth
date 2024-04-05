@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @miyagamu. I use templates for intros.
+- 👋 Hi, I’m @swordRanger. I use templates for intros.
 - 👀 I’m interested in a lot of things, please HELPPPPP 😭
 - 🌱 I’m currently learning (trying to learn) game development.
 - 📫 You can reach me at: chavdaparth6511@gmail.com
